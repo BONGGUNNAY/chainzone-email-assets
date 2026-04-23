@@ -1,0 +1,1 @@
+# chainzone-email-assets
